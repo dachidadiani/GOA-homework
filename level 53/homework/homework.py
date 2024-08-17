@@ -1,0 +1,1 @@
+# dasaweri ar mkonda, mxolod proektze unda gvemushava 
